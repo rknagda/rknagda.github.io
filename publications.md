@@ -53,5 +53,39 @@ Listed Below are some of my research contributions-
 - The estimation of Genetic and Phenotypic Parameters of Growth curve traits in Sirohi Goat using brody function, Journal of Animal Research; v. 9 n.2, p. 01-07, 2019
 - Growth modeling and genetic analysis on growth traits of Sirohi goat under field conditions, Iranian Journal of Applied Animal Science, 9 (1): 115-124, 2019
 
+### Abstracts
+- Mortality pattern of Sirohi goats under field conditions. "VII Indian veterinary congress and XIV Annual conference of IAAVR on progress and demands in livestock and poultry health and production and new areas like animal welfare and disaster management." Institute of animal health and biological products, MHOW, M.P., 8-9. Feb.2007
 
-### please contact regarding the details of the above mentioned projects
+- Improvement in reproductive performance of Sirohi goats under field conditions. "VII Indian veterinary congress and XIV Annual conference of IAAVR on progress and demands in livestock and poultry health and production and new areas like animal welfare and disaster management." Institute of animal health and biological products, MHOW, M.P., 8-9 Feb.2007.
+
+- Studies on incidences of different diseases in Sirohi goats under field conditions. "National Seminar on Stress Management in Small Ruminant Production and product processing. rganized by the Indian Society of Sheep & Goat Production and Utilization in collaboration with Central Sheep & Wool Research Institute", Avikanagar and Central Institute of Research on Goat, Makhdoom at Hotel Clark Ajmer, Jaipur. Jan. 29-31, 2010
+
+- Subsequent productive and reproductive performance of abnormal calved Surti Buffaloes. International Buffalo Conference on “Optimizing Buffalo Productivity through Conventional and Novel Technologies” Silver Jubilee year  organized by Central Institute for Research on Buffaloes at NASC, ICAR, New Delhi. February 1-4, 2010
+
+- Characterization of Sonadi Sheep in their native tract. National Seminar on “Characterization and Conservation of Biodiversity for Sustainable Agriculture” held at Rajasthan College of Agriculture, (MPUAT, Udaipur), Udaipur 12-13 Nov., 2010
+
+- Growth performance of Sonadi sheep in farmers flock. National seminar on prospects and retrospects of small ruminant and rabbit production: contribution to socio-economic security held during 7-9th Dec., 2011 at Jaipur, Organized by ISSGPU. 9th Dec., 2011
+
+- Prospects in improving production, marketing and value addition of carpet wool. Indian Society for sheep and goat productionand utilization, central sheep and wool researchinstitute Avikanagar central wool development board, Jodhpur.
+31 Dec., 2013
+
+- Socio-Economic Status of Goat Owners in Chittorgarh District of Rajasthan National Seminar on Improvement of Small Ruminant Producion system for livelihood security, organized by Indian Society for Sheep & Goat Production & Utilization, Avikanagar 9-10 Mar., 2017
+
+- Hydatidosis A Zoonotic Health Hazard in Rajasthan XIV Annual Conference of Indian Association of Vety. Public Health 2016
+
+- Effect of non-genetic factors on Birth weight weaning weight of Sirohi goats, Compendium National Seminar of Small Ruminant, ICAR Central Institute for Research on Goat, Makhdoom, Farah, Mathura, sponsored by ISSGPU, 9-10 Nov. 2017
+
+- Management of Neonatal kid mortality in Sirohi goats, Compendium National Seminar of Small Ruminant, ICAR Central Institute for Research on Goat, Makhdoom, Farah, Mathura, sponsored by ISSGPU, 9-10 Nov. 2017
+
+- Parasite Zoonotic Diseases of Small Ruminant, XXVII National Congress of Veterinary Parasitology and National Symposium on IAAVP, 2018
+
+- Water Borne Zoonotic Diseases of Small Ruminant XXVII National Congress of Veterinary Parasitology and National Symposium on IAAVP, 2018
+
+- Estimation of growth performance in Sirohi goat under field conditions. National Seminar on “Current Scenario and Future Strategies for Augmenting Productivity in Small Ruminants” Organized by Bihar Animal Science University, Patna, Bihar & Indian Society for Sheep and Goat Production and Utilization. 14-16 Feb 2019
+
+- Evaluation of Reproductive Characteristics of Sirohi Goats from Udaipur. National Seminar on “Current Scenario and Future Strategies for Augmenting Productivity in Small Ruminants” Organized by Bihar Animal Science University, Patna, Bihar & Indian Society for Sheep and Goat Production and Utilization. 14-16 Feb 2019
+
+- Genetic Studies on Average Daily Weight Gain in Sirohi Goat in Breeding Tract. National Seminar on “Current Scenario and Future Strategies for Augmenting Productivity in Small Ruminants” Organized by Bihar Animal Science University, Patna, Bihar & Indian Society for Sheep and Goat Production and Utilization. 14-16 Feb 2019
+
+
+### please contact regarding the details of the above mentioned research work
